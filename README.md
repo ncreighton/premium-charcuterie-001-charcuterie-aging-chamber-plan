@@ -1,0 +1,2 @@
+# premium-charcuterie-001-charcuterie-aging-chamber-plan
+Stop losing precious cured meats to inconsistent humidity or mold. Your aging chamber deserves the same meticulous planning as a master salumiere.  This Notion template transforms your aging chamber from a guessing game into a controlled environment. Track temperature, humidity, and pH daily, log each piece of meat from start to finish, and get rem
